@@ -1,2 +1,2 @@
 For training purpose 
-For skils inprovement
+and skills inprovement
